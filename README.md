@@ -2,7 +2,7 @@
 
 •Curso:K1253
 
-•Años de cursada:2022
+•Año de cursada:2022
 
 •Legajo:1775649
 
